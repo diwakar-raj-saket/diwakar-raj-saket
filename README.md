@@ -19,7 +19,7 @@
 
 <br/><br/><br/>
 
-<img align="right" src="https://https://https://images.app.goo.gl/jES2MAEFmpA4eAvA6" / >
+<img align="right" src="https://https://https://images.app.goo.gl/jES2MAEFmpA4eAvA6" />
 
 :smiley: **Sophomore and a Developer** 
 
